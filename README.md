@@ -1,3 +1,3 @@
 # deepdemo
 New Repo<br>
-Aurthor- Pradeep Kumar Sijui
+Aurthor- Pradeep Kumar Sijui (Pixsans)
